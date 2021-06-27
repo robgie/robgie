@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @robgie
 - 👀 I’m interested in prototyping
-- 🌱 I’m currently learning perserverance
+- 🌱 I’m currently learning perseverance
 - 💞️ I’m looking to collaborate on making the world better
 - 📫 How to reach me ... don't know...
 
